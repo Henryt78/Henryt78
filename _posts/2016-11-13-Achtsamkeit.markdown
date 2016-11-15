@@ -12,14 +12,14 @@ Also beginnen wir mal wieder mit einer Minigewohnheit, damit wir die Achtsamkeit
 
 Minigewohnheiten bezogen auf Achtsamkeit könnten zum Beispiel sein:
 
-
-	* eine schlechte Angewohnheit pro Tage finden
-	* achtsam die Zähne putzen
-	* 1 Minute achtsam Auto fahren
-	* 1 Minute achtsam seine Speisen verzehren
-	* achtsam seine Schuhbänder schnüren
-	* achtsam am Morgen aufstehen, also z.b. welcher Fuß ist als erster auf dem Boden 
-	* 1 x am Tag achtsam auf dem Klo sitzen ;-=)
+<ul>
+<li> eine schlechte Angewohnheit pro Tage finden </li>
+	<li> achtsam die Zähne putzen</li>
+	<li> 1 Minute achtsam Auto fahren</li>
+	<li> 1 Minute achtsam seine Speisen verzehren</li>
+	<li> achtsam seine Schuhbänder schnüren</li>
+	<li> achtsam am Morgen aufstehen, also z.b. welcher Fuß ist als erster auf dem Boden </li>
+	<li> 1 x am Tag achtsam auf dem Klo sitzen ;-=)</li> </ul>
 
 
 Such dir eine oben beschriebene Tätigkeit aus, oder denk dir eine eigene aus, und starte noch heute. Und integriere sie täglich in dein Leben.
