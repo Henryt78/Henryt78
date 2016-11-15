@@ -6,7 +6,7 @@ date:   2016-11-15
 
 
 
-<h1>TUN ODER DENKEN? </h1>
+
 
 Seitdem ich die Minigewohnheiten für mich entdeckt habe, frage ich mich, was bringt den normalen Menschen weiter bzw. eher zu seinem eigentlichen Sein bzw. Ziel?
 
