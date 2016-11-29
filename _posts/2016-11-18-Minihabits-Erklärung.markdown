@@ -54,13 +54,13 @@ Jetzt kommen natürlich bei dir lieber Leser wieder sofort die Zweifel hoch, ja 
 - ne auf mein Problem/ Ziel kann ich das nun wirklich nicht anwenden<br/>
 - etc ...<br/><br/>
 Doch kannst du, hast du es schon probiert, um es beurteilen zu können?<br/><br/>
-Teste es einfach mach z.b. die eine Liegestütze 1x am Tag, und zwar jeden Tag ohne Ausnahme eine Woche lang,<br/>
-das kostet dich genau 10sec deines Lebens pro Tag. Das schaffst auch du!!<br/>
-und wenn du noch nie eine Liegestütze gemacht hast, könnte dein Ziel / miniGewohnheit/ Pflichtaufgabe sein, nur in die Position zu gehen, also knie dich doch einfach nur hin, und streck die Hände nach vorne aus, nach ein paar Tagen testest du dann mal die komplette Position, und irgendwann machst du deine Liegestütze versprochen!!!<br/><br/>
-TU ES NUR JEDEN TAG EINMAL ‚!!!!!!<br/><br/>
+Teste es einfach! Mach z.b. die eine Liegestütze 1x am Tag, und zwar jeden Tag, ohne Ausnahme eine Woche lang,<br/>
+das kostet dich genau 10 Sekunden deines Lebens pro Tag. Das schaffst auch du!!<br/>
+Und wenn du noch nie eine Liegestütze gemacht hast, könnte dein Ziel / Mini Gewohnheit/ (Pflicht)aufgabe sein, nur in die Position zu gehen, also knie dich doch einfach nur hin, und streck die Hände nach vorne aus, nach ein paar Tagen testest du dann mal die komplette Position, und irgendwann machst du deine Liegestütze versprochen!!!<br/><br/>
+TU ES NUR JEDEN TAG EINMAL !!!!!!<br/><br/>
 Und wenn selbst das nicht klappt, woran kann das liegen? Genau aus oben beschriebenen Gründen,<br/>
 man nimmt sich zu viel vor.<br/>
-Die letzten Wochen habe ich mit vielen Freunden/ Schülern etc. über die Minihabits gesprochen, und jeder denkt das was er macht sei schon klein genug, leider stimmt das aber bisher nicht, klar wenn man mega motviert ist, schafft man eine Zeit lang alles mögliche , aber was ist, wenn mal der erste Regentag kommt?<br/>
-Nichts gegen Regen, aber für viele, mich eingeschlossen, reicht das schon , um erstmal eine Pause zu machen, und zu verschieben oder gleich ganz aufzugeben.<br/><br/>
+Die letzten Wochen habe ich mit vielen Freunden/ Schülern etc. über die Minihabits gesprochen, und jeder denkt, dass, was er macht sei schon klein genug, leider stimmt das aber bisher nicht, klar wenn man mega motviert ist, schafft man eine Zeit lang alles mögliche, aber was ist, wenn mal der erste Regentag kommt?<br/>
+Nichts gegen Regen, aber für viele, mich eingeschlossen, reicht das schon, um erstmal eine Pause zu machen, und zu verschieben oder gleich ganz aufzugeben.<br/><br/>
 Hätte ich früher vermutlich auch so gemacht, heute teile ich mir den Tag automatisch so ein, dass ich mein Minipensum trotzdem schaffe, einfach ccool ...<br/><br/></span>
 </div></body></html>
