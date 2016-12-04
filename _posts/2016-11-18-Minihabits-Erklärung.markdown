@@ -16,7 +16,7 @@ date:   2016-11-18
 
 <div>
 <span style="word-wrap: break-word; -webkit-nbsp-mode: space; -webkit-line-break: after-white-space;">
-Mini habits, was isn das?<br/><br/>
+Mini habits, was ist denn das?<br/><br/>
 Ja was sind Minigewohnheiten? DER SCHLÜSSEL ZUM ERFOLG<br/><br/>
 ganz im Ernst, ich habe die letzten 20 Jahre bestimmt 50 sogenannte Selbsthilfebücher gelesen,<br/>
 und auch immer wieder gute Tipps darin gefunden, das Problem ist nur immer DIE UMSETZUNG:<br/>
