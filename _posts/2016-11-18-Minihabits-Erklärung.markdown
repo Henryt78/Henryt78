@@ -17,7 +17,7 @@ date:   2016-11-18
 <div>
 <span style="word-wrap: break-word; -webkit-nbsp-mode: space; -webkit-line-break: after-white-space;">
 Mini habits, was ist denn das?<br/><br/>
-Ja was sind Minigewohnheiten? DER SCHLÜSSEL ZUM ERFOLG<br/><br/>
+Ja was sind Minigewohnheiten? DER SCHLÜSSEL ZUM ERFOLG<br/>
 ganz im Ernst, ich habe die letzten 20 Jahre bestimmt 50 sogenannte Selbsthilfebücher gelesen,<br/>
 und auch immer wieder gute Tipps darin gefunden, das Problem ist nur immer DIE UMSETZUNG:<br/>
 soll heißen, man denkt sich, ja, hört sich interessant an und ist bestimmt auch hilfreich, wenn ich es doch nur machen würde...<br/>
@@ -62,5 +62,5 @@ Und wenn selbst das nicht klappt, woran kann das liegen? Genau aus oben beschrie
 man nimmt sich zu viel vor.<br/>
 Die letzten Wochen habe ich mit vielen Freunden/ Schülern etc. über die Minihabits gesprochen, und jeder denkt, dass, was er macht sei schon klein genug, leider stimmt das aber bisher nicht, klar wenn man mega motviert ist, schafft man eine Zeit lang alles mögliche, aber was ist, wenn mal der erste Regentag kommt?<br/>
 Nichts gegen Regen, aber für viele, mich eingeschlossen, reicht das schon, um erstmal eine Pause zu machen, und zu verschieben oder gleich ganz aufzugeben.<br/><br/>
-Hätte ich früher vermutlich auch so gemacht, heute teile ich mir den Tag automatisch so ein, dass ich mein Minipensum trotzdem schaffe, einfach ccool ...<br/><br/></span>
+Hätte ich früher vermutlich auch so gemacht, heute teile ich mir den Tag automatisch so ein, dass ich mein Minipensum trotzdem schaffe, einfach cool ...<br/><br/></span>
 </div></body></html>
